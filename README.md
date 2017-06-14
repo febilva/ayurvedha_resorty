@@ -1,0 +1,1 @@
+# ayurvedha_resorty
